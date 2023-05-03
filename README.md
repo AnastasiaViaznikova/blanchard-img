@@ -1,0 +1,1 @@
+Image for blanchard mail
